@@ -1,4 +1,6 @@
 - 👋 Hi, I’m @zeyrox04
+- Currently learning something
+-
 
 
 
